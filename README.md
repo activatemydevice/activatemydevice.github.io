@@ -1,1 +1,0 @@
-# activatemydevice.github.io
